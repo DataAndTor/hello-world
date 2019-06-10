@@ -2,4 +2,4 @@
 im learning
 
 im a human
-imlearning all sorts of stuff
+im learning all sorts of stuff
